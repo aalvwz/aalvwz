@@ -2,4 +2,4 @@
 
 Meu nome é karen alves
 
--Estou estudando no alura
+- Estou estudando no alura
