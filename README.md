@@ -11,6 +11,5 @@ Meu nome é karen alves
   00001088468688sp@al.educacao.sp.gov.br
 
 
-  
 
 ![](https://tenor.com/pt-BR/view/haikyuu-gif-19592559)
